@@ -1,2 +1,4 @@
-##<img width="500" height="500" alt="219e3d0e53346cd1ce375e71f0a1675a__1_-removebg-preview" src="https://github.com/user-attachments/assets/64e7a426-9a3c-41f8-a178-2ef65aa98b92" />
-# $${\color{blue} jace\ heloe\}$$
+<p align="center"> <img width="500" height="500" alt="219e3d0e53346cd1ce375e71f0a1675a__1_-removebg-preview" src="https://github.com/user-attachments/assets/64e7a426-9a3c-41f8-a178-2ef65aa98b92" />
+
+### <p align="center">  $${\color{blue}JACE\ }$$
+<p align="center"> [main](https://github.com/fleshburn) [one.](https://br8k.straw.page) [two.](https://7vscs.straw.page) </p>
